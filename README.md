@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **kabaloi@proton.me**
 
-- ⚡ Fun fact **I am a huge fans of MODERN FAMILY**
+- ⚡ Fun fact **apart from coding, I spend lots of time in blender and figma as well**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
